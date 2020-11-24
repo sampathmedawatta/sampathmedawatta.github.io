@@ -1,1 +1,0 @@
-# sampathmedawatta.github.io
